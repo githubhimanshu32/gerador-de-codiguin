@@ -16,8 +16,9 @@
 
 1. **Selecione o item** desejado no menu suspenso
 2. Clique em **"Gerar Códiguin"**
-3. Copie o código e resgate no [site oficial da Garena](https://reward.ff.garena.com)
-4. Repita a cada 24 horas para novos códigos
+3. [gerador de codiguin free fire 2025](https://www.geradordecodiguin.pro/)
+4. Copie o código e resgate no [site oficial da Garena](https://reward.ff.garena.com)
+5. Repita a cada 24 horas para novos códigos
 
 📌 **Dica:** Compartilhe com amigos para aumentar suas chances de códigos válidos!
 
@@ -71,7 +72,7 @@ Não há risco de banimento, mas recomendamos não abusar do sistema de resgate.
 
 ## 📌 Palavras-chave Relacionadas
 
-- gerador de codiguin free fire 2025
+- [gerador de codiguin free fire 2025](https://www.geradordecodiguin.pro/)
 - reward ff gerador de codiguin
 - gerador de codiguin infinito
 - ff mania gerador de codiguin
@@ -87,7 +88,8 @@ Contribuições são bem-vindas! Siga esses passos:
 3. Commit suas mudanças (`git commit -m 'Adiciona nova feature'`)
 4. Push para a branch (`git push origin feature/nova-feature`)
 5. Abra um Pull Request
-
+<a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgQdNCs6nzV03BeaWjvecqf3kx7nf3dDgpcZMR3LIk9jF0KjbsAkwCUyHM3ejqDPVWmdnF2kJYQy5sw2DRAAeN_8AG6BE_m_7YPvyWyU0N2km8MAOYe6JIdHid2L5_R7lwQJ42-0JRjPlMPutw9TRAXzzKviZDTiCUNepBsxf0HhTtnLRD3F8j8jRJSQQ4t/s16000/Gerador-de-codiguin-ff.webp"><img alt="Gerador-de-codiguin-ff" title="Gerador-de-codiguin-ff" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgQdNCs6nzV03BeaWjvecqf3kx7nf3dDgpcZMR3LIk9jF0KjbsAkwCUyHM3ejqDPVWmdnF2kJYQy5sw2DRAAeN_8AG6BE_m_7YPvyWyU0N2km8MAOYe6JIdHid2L5_R7lwQJ42-0JRjPlMPutw9TRAXzzKviZDTiCUNepBsxf0HhTtnLRD3F8j8jRJSQQ4t/s16000/Gerador-de-codiguin-ff.webp"></a>
+     
 ## 📄 Licença
 
 Este projeto está licenciado sob a Licença MIT - veja o arquivo [LICENSE](LICENSE) para detalhes.
