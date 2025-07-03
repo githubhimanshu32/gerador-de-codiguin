@@ -16,7 +16,7 @@
 
 1. **Selecione o item** desejado no menu suspenso
 2. Clique em **"Gerar Códiguin"**
-3. [gerador de codiguin free fire 2025](https://www.geradordecodiguin.pro/)
+3. [gerador de codiguin free fire 2025](https://tinyurl.com/4drh9wjb)
 4. Copie o código e resgate no [site oficial da Garena](https://reward.ff.garena.com)
 5. Repita a cada 24 horas para novos códigos
 
@@ -72,7 +72,7 @@ Não há risco de banimento, mas recomendamos não abusar do sistema de resgate.
 
 ## 📌 Palavras-chave Relacionadas
 
-- [gerador de codiguin free fire 2025](https://www.geradordecodiguin.pro/)
+- [gerador de codiguin free fire 2025](https://tinyurl.com/4drh9wjb)
 - reward ff gerador de codiguin
 - gerador de codiguin infinito
 - ff mania gerador de codiguin
